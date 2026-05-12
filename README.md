@@ -30,6 +30,11 @@ World War II movies are my favorite because they show real historical events, po
 
 ### **Favorite Quote**
 *"Earn this."*
+*"Our veterance 6 years of war, there veterance 6 days of war....."*
+*"No looting dammit, and stay out of the pantry."*
+*"Rain, open top tank, great german enginnering."*
+*"No im not facing german tactical superiority head on, im stating the fucking obvious."*
+*"You want us to attack an elephant? jawohl!"*
 
 ### **Extra**
 Learn more about WWII and its history through books, documentaries, and films.
